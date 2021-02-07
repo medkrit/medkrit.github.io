@@ -1,1 +1,0 @@
-# medkrit.github.io
